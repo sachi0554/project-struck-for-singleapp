@@ -1,0 +1,1 @@
+# project-struck-for-singleapp
